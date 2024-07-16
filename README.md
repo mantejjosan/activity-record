@@ -18,4 +18,5 @@ This file will only be made public at a specified date by instructors at GNDEC
 | 15/07/2024 | Dr. Pyare Lal | Talk about change in universe and the only thing that hasn't changed in humans: The urge to be respected and valued, Simplicity in life, Positive and negative energy in cosmos, Physics and mathematics use in life and nature |
 |  | Mr. Sony Goyal | Always give your 100%, **LIFE: Learn Inquire Future Explore(4 years of B.Tech)**, *Live life NOW* because those "only 2 more years of struggle" will never come to an end |
 | | Mr. Pancham | Body Language Class & SEC Motor Sports |
-
+| 16/07/2024 | Causmic Club Members | English Quiz: CSD vs CSC, CSD won |
+| | JK, Pancham and Tashneet | General Knowledge Quiz | 
