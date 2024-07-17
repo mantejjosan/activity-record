@@ -20,3 +20,7 @@ This file will only be made public at a specified date by instructors at GNDEC
 | | Mr. Pancham | Body Language Class & SEC Motor Sports |
 | 16/07/2024 | Causmic Club Members | English Quiz: CSD vs CSC, CSD won |
 | | JK, Pancham and Tashneet | General Knowledge Quiz | 
+| 17/07/2024 | Assistant Professor Sukminder Singh | Recapulation of functions, derivates and solved differentiation problems. |
+| | Richi Mam | Introduction to Universal Human Values: Disscussion on Health and Body |
+| | Dr. H.S. Rai | CodeGNE meeting, received tasks to do, doubt solving |
+
