@@ -22,5 +22,6 @@ This file will only be made public at a specified date by instructors at GNDEC
 | | JK, Pancham and Tashneet | General Knowledge Quiz | 
 | 17/07/2024 | Assistant Professor Sukminder Singh | Recapulation of functions, derivates and solved differentiation problems. |
 | | Richi Mam | Introduction to Universal Human Values: Disscussion on Health and Body |
+| | English Club office bearers | English proficiency test |
 | | Dr. H.S. Rai | CodeGNE meeting, received tasks to do, doubt solving |
-
+ 
